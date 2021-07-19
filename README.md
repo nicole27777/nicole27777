@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on some games
 - 📫 How to reach me discord: Nicole27777#9967
 
+also i love kpop totally irrelevant but yeah
 <!---
 nicole27777/nicole27777 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
